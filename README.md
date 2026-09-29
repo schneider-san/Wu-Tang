@@ -1,5 +1,6 @@
 # Wu-Tang
-Bobby V. et D. E. Motto
+Mr. Carter
+
 
 Todo:
   On hiatus🌍 - Will update.
@@ -10,23 +11,24 @@ White papers and references:
   - http://example.com/
   - https://validator.w3.org/
 
-"... @6_Yuu're getting snoozed for passion fruits and controlla mechanisms..." - D. E. Motto
+"... @6_Yuu're getting snoozed for your mechanisms..." - D. E. Motto
 
 
 
 
-🥜 ((( O_O )))
+🥜
 
 Ma fantôme cherie,
 
-Is there more? Et toi? ⏱️ Let me in through your encryption.
+Boston, is there anything more?
+I'm (off) your "ice man" edition 🌜.
 
-Kanye Wine Fox Fontane Standby Montblanc Mostiques Scare Owner Symbiosis Declan Hangman Rice ORS Tesla Rico Boy 🌝.
+Kanye Champagne Fox Fontane Standby Moncler Moustiques Scarecrow Owner Symbiote Declan Hangman Rice ORS Tesla Rico Boy 🌝.
 
-asake algorithm proliferated strippers instagram anthem minus pleurisy fellow department libra skunk spooler hardware satoshi licence
+awakening algorithm proliferated strippers instagram anthem minus pleurisy fellow department libra skunk spooler hardware satoshi licence
 
 🌝🌞
 
 ...
 
-Sent from my iPhone
+Sent from my iPhone.
