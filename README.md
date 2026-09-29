@@ -3,8 +3,8 @@ Bobby V. et D. E. Motto
 
 Todo:
   On hiatus🌍 - Will update.
-
-
+  Mark Zuckerberg 🫂
+  
 White papers and references:
   - https://www.w3.org/
   - http://example.com/
