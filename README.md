@@ -1,6 +1,5 @@
 # Wu-Tang
-Mr. Carter
-
+Gotta have it.
 
 Todo:
   On hiatus🌍 - Will update.
