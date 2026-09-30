@@ -10,6 +10,11 @@ White papers and references:
   - http://example.com/
   - https://validator.w3.org/
 
+
+TO WHOM IT MAY CONCERN 👼💥💣
+
+🤩Plain MURA$AKI 👹🫵🏽
+
 "... @6_Yuu're getting snoozed for your mechanisms..." - D. E. Motto
 
 
